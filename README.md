@@ -1,4 +1,6 @@
 - 💫 Hi, I’m @FrogTheAmphibian 💫
+- 🪐 I go by both Alexx and Frog 🪐
+- 🌾 My pronouns are they/them, le/lem, ve/vir 🌾
 - 🕯 I’m interested in languages 🕯
 - 🎞 I’m currently learning coding 🎞
 
